@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kiritinho
-- 👀 I’m interested in  conversar com voces
-- 🌱 I’m currently learning  japones
-- 💞️ I’m looking to collaborate on  tudo
+- 👀 I’m interested in  talk to you
+- 🌱 I’m currently learning japanese
+- 💞️ I’m looking to collaborate on  all
 - 📫 How to reach me  discord ム✞メo garoto mais totosoメ✞ム#7918
 - 📫 How to reach me https://www.instagram.com/orekii._.houtarou/
